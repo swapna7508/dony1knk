@@ -1,0 +1,18 @@
+本文档由www.zixueya.com 制作发布-作者微信:a088673910，承接软件开发，脚本定制，网站建设等。
+
+# 京东 AI 供应链、客服、推荐、降本增效、营收改善。,脑机接口突破，意念控制、神经修复、增强认知，临床应用加速。,http://dingzhi.zixueya.com/news/461910,一、国内时政,2026-6-30
+
+本文档由www.zixueya.com 制作发布-作者微信:a088673910，承接软件开发，脚本定制，网站建设等。
+
+**2026年07月03日 23时05分45秒(UTC+8)**
+
+---
+
+本文档由www.zixueya.com 制作发布-作者微信:a088673910，承接软件开发，脚本定制，网站建设等。
+
+## 新闻
+
+### 京东 AI 供应链、客服、推荐、降本增效、营收改善。,脑机接口突破，意念控制、神经修复、增强认知，临床应用加速。,http://dingzhi.zixueya.com/news/461910,一、国内时政,2026-6-30
+
+title,summary,source_url,category,published_at
+| 来源：www.pjshmy.com/Article/details/2884116.shtml
